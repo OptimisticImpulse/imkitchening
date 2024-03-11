@@ -2,4 +2,4 @@
 I'm kitchening
 
 Come in! 
-& Smell what JC is cooking! 
+& Smell what JC is cooking! 👨🏾‍🍳
