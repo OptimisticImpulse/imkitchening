@@ -6,4 +6,4 @@ Come in!
 
 Thes best kitchen in the world, Yeah!?
 
-Let's go!
+Let's go! 🤷🏾‍♂️
